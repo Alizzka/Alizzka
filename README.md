@@ -3,6 +3,13 @@
 
 ## Or [CV card](https://anastasiasemisorova.carrd.co/)
 
+![Элементы для макета (1)](https://github.com/user-attachments/assets/036d7f7e-d2c7-448f-8fbd-0f2e4f90e986)   
+
+![Элементы для макета](https://github.com/user-attachments/assets/7b5dbdab-c938-44de-972d-963458a764f7)
+
+
+
+
 
 
 

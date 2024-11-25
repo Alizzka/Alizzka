@@ -3,9 +3,6 @@
 
 ## Or [CV card](https://anastasiasemisorova.carrd.co/)
 
-### Made in Figma
-
-![2024-11-22_22-26-45](https://github.com/user-attachments/assets/d607acb1-936c-4bad-bccb-437fe2829763)
 
 
 
